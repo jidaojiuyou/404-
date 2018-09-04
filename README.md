@@ -20,4 +20,4 @@
 * 大陆用户下载地址[蓝奏云](https://www.lanzous.com/i1t1nmb)
 
 
-* 有其他疑问请联系我 [邮箱](mailto:jidaojiuyou@foxmail.com)
+* 有其他疑问请联系我jidaojiuyo#foxmail.com(将#换成@）
